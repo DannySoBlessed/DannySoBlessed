@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Zion_pleshette_da_author
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 👀 I’m interested in .. helping the Youth 
+- 🌱 I’m currently learning ...to Evolve
+- 💞️ I’m looking to collaborate on ...Molding Mindz Youth Business Fair
 - 📫 How to reach me ... zionpleshette@gmail.com
 
 <!---
